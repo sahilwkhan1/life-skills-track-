@@ -34,11 +34,11 @@ Coding is also one example of deep work, in which we need to deeply use our cogn
 
 ## Q .4 Your key takeaways from the video
 
-We do not need to completely rely on social media for our social relations.
-Aside from social media, we can still collaborate with other people in the world.
-We can stay updated with the current event without social media.
-Social media is not a fundamental thing to survive in the current modern world.
-Social media are made to be addictive, hence we should not get addicted to them. 
-To survive in the digital market, social media marketing is not only a source to use
-We should know the adverse effects of social media apps on our professional, personal, and social life, as well as on our health. It can lead to reduced concentration along with dissatisfaction with our own life, due to seeing other 's life.
-By avoiding social media, we get to know our real surroundings and get to concentrate on useful and important tasks.
+* We do not need to completely rely on social media for our social relations.
+* Aside from social media, we can still collaborate with other people in the world.
+* We can stay updated with the current event without social media.
+* Social media is not a fundamental thing to survive in the current modern world.
+* Social media are made to be addictive, hence we should not get addicted to them. 
+* To survive in the digital market, social media marketing is not only a source to use
+* We should know the adverse effects of social media apps on our professional, personal, and social life, as well as on our health. It can lead to reduced concentration along with dissatisfaction with our own life, due to seeing other 's life.
+* By avoiding social media, we get to know our real surroundings and get to concentrate on useful and important tasks.
